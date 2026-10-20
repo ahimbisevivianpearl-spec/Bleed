@@ -1,2 +1,42 @@
 # Bleed
 The Kid Laroi
+How did your heart mend so easy?
+Mine still bleeds
+Hard to believe you don't need me
+All those memories we made are burnin' in my brain
+And I'm stuck in yesterday, for me it's still the same
+Tell me how
+How did your heart mend so easy?
+Mine still bleeds
+The ghost of you still floats around my room
+It lets me know that letting go's just not the same with you
+Now every night I lay here in this bed we made for two
+But I'm sleepin' alone while you're out there
+With somebody in theirs, oh, I hope that he cares
+In the way that I did, you abandoned me here
+Lost up in my head again, I'm caught inside myself
+You promised that it wouldn't end, but you let me, you let me down
+How did your heart mend so easy?
+Mine still bleeds
+Hard to believe you don't need me
+All those memories we made are burnin' in my brain
+And I'm stuck in yesterday, for me it's still the same
+Tell me how
+How did your heart mend so easy?
+Mine still bleeds
+Don't give up just because it's hard
+Come back and heal me before I'm left scarred
+You tell me, "We took this too far"
+As soon as I let down my guard
+When you needed it most, as you cried, I was soaked
+Now it's weeks since we spoke, had your mom drop my clothes
+And she tried to console me that love comes and goes
+And there's nothing you owe me, but you let me, you let me down
+How did your heart mend so easy?
+Mine still bleeds
+Hard to believe you don't need me
+All those memories we made are burnin' in my brain
+And I'm stuck in yesterday, for me it's still the same
+Tell me how
+How did your heart mend so easy?
+Mine still bleeds
